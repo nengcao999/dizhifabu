@@ -1,7 +1,7 @@
 #  不迷路！
 
-###  【最新】 ：https://nc.ncaicc146.com:23569
-###  【最新】 ：https://nc.ncaicc147.com:23569
+###  【最新】 ：https://nc.ncaicc148.com:23569
+###  【最新】 ：https://nc.ncaicc149.com:23569
 
 ### 地址发布：https://ncfb291.com
 ### 稳稳线路 :  https://104.233.183.220:30099/
