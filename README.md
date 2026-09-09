@@ -1,9 +1,9 @@
 #  不迷路！
 
-###  【最新】 ：https://nc.ncaidd10.com:23569
-###  【最新】 ：https://nc.ncaidd11.com:23569
+###  【最新】 ：https://nc.ncaidd12.com:23569
+###  【最新】 ：https://nc.ncaidd13.com:23569
 
-### 地址发布：https://ncfb297.com
+### 地址发布：https://ncfb295.com
 ### 稳稳线路 :  https://104.233.183.220:30099/
 
 #### __邮箱: nengcao@mail.com （发送任意内容获取最新地址）__
