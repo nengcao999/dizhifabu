@@ -1,7 +1,7 @@
 #  不迷路！
 
-###  【最新】 ：https://nc.ncss664.com:23569
-###  【最新】 ：https://nc.ncss665.com:23569
+###  【最新】 ：https://nc.ncss667.com:23569
+###  【最新】 ：https://nc.ncss677.com:23569
 
 ### 地址发布：https://ncfb307.com
 ### 稳稳线路 :  https://198.2.225.121:30100/
